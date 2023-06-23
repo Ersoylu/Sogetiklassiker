@@ -1,1 +1,1 @@
-# Sogetiklassiker
+# Sogetiklassikern
